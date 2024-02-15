@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - Gabriel Ramos Ferraz, 17 anos
-- 2° C exatas
+- 2° C
 - Colegio Estadual Dr. Arnaldo Busatto
