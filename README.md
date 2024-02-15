@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- Gabriel Ramos Ferraz, 17 anos
+- 2° C exatas
+- Colegio Estadual Dr. Arnaldo Busatto
